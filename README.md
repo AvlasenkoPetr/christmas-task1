@@ -1,1 +1,1 @@
-https://avlasenkopetr.github.io/christmas-task/christmas-task1/index.html
+https://avlasenkopetr.github.io/christmas-task1/christmas-task1/index.html
